@@ -1,1 +1,1 @@
-![img](https://upload.wikimedia.org/wikipedia/commons/1/16/Shameless_title.png)
+![img](https://media.discordapp.net/attachments/1252681038992244758/1342940770973384754/Untitled206_20250222132700.png?ex=67bb768e&is=67ba250e&hm=f1f25c6a1682c79dd96b4e083b40b79adb291bb553491e226b471ef7b9dc4104&=&format=webp&quality=lossless&width=841&height=158)
