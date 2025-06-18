@@ -1,1 +1,1 @@
-![img](https://media.discordapp.net/attachments/1252681038992244758/1342941750079127704/Untitled206_20250222133054.png?ex=67bb7777&is=67ba25f7&hm=42ea237eb44a212e7c09ae634dd243dde8f2b69dbe6421a517eff605b23b204b&=&format=webp&quality=lossless&width=841&height=158)
+...and justice for all
