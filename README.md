@@ -1,1 +1,1 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=Come+on+hillbilly,;can+your+horse+do+a+fucking+wheelie;You+love+it+down+south,+and+boy,;you+sure+do+got+a+purdy+mouth)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=Goodbye,+papa;please+pray+for+me.)](https://git.io/typing-svg)
