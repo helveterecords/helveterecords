@@ -2,4 +2,4 @@
 <p align="center">
   <b>socials</b><br>
 <p align="center">
-[i](https://oystein.straw.page/)
+[strawpage](https://oystein.straw.page)
