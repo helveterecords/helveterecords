@@ -1,3 +1,5 @@
 ![img](https://files.catbox.moe/13ux9w.png)
-and i know, i know it's not your time
-but bye-bye
+<p align="center">
+  <b>socials</b><br>
+<p align="center">
+[i.](https://oystein.straw.page/) [ii.](link) [iii.](link)
